@@ -22,5 +22,5 @@ So get on down to Cashies, mate
 You know it'll change your life
 So get off the floor, head out the door
 Forget eBay, they'll charge you more
-And lose your life at Cashies, Mate!
+And lose your life at Cashies!
 --->
